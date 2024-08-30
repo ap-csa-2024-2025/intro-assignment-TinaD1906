@@ -18,4 +18,4 @@ Answer the questions below
 * Ask Mr. Vu anything:  
 - how does one practice mindful money spending 
 * List your sports and extracurriculars you participate in
-- VACC, Engineering Club, and phych/neuro club 
+- VACC, Engineering Club, and psych/neuro club 
