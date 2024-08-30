@@ -14,6 +14,8 @@
 ## About Me
 Answer the questions below
 * Something interesting about me is
-* Ask Mr. Vu anything:
+- one of my eye is nearsighted and the other eye is farsighted 
+* Ask Mr. Vu anything:  
+- how does one practice mindful money spending 
 * List your sports and extracurriculars you participate in
-ur mom 
+- VACC, Engineering Club, and phych/neuro club 
