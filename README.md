@@ -17,7 +17,7 @@ Answer the questions below
 - one of my eye is nearsighted and the other eye is farsighted 
 - I am almost level 2000 on royale high 
 * Ask Mr. Vu anything:  
-- how does one practice mindful money spending 
+- how does one practice mindful money spending?
 * List your sports and extracurriculars you participate in
 - VACC, Engineering Club, and psych/neuro club 
 
